@@ -14,18 +14,18 @@ And if you find a bug? Congratulations — you’ve found an invitation.
 
 ## 📚 Table of Contents
 
-- [🛠️ What I Actually Do (QA)](#️-what-i-actually-do)
-  - [🧪 Manual & Functional Testing](#manual--functional-testing)
-  - [🔧 QA Process & Strategy](#qa-process--strategy)
-  - [⚙️ Automation & Tooling](#automation--tooling)
-  - [💬 Collaboration](#collaboration)
-- [🧪 My QA Side](#my-qa-side)
-- [🧠 Consent & Professionalism First](#consent--professionalism-first)
-- [🔥 My NSFW Side](#my-nsfw-side)
-- [📌 FAQ](#faq)
-- [🎁 Custom QA/NSFW Collabs (Optional & Fully Consensual)](#custom-qansfw-collabs-optional--fully-consensual)
-  - [💸 Pricing Transparency](#pricing-transparency)
-- [📫 Let’s connect](#lets-connect)
+- [🛠️ What I Actually Do](#️-what-i-actually-do)
+  - [🧪 Manual & Functional Testing](#-manual--functional-testing)
+  - [🔧 QA Process & Strategy](#-qa-process--strategy)
+  - [⚙️ Automation & Tooling](#-automation--tooling)
+  - [💬 Collaboration](#-collaboration)
+- [🧪 My QA Side](#-my-qa-side)
+- [🧠 Consent & Professionalism First](#-consent--professionalism-first)
+- [🔥 My NSFW Side](#-my-nsfw-side)
+- [📌 FAQ](#-faq)
+- [🎁 Custom QA/NSFW Collabs (Optional & Fully Consensual)](#-custom-qansfw-collabs-optional--fully-consensual)
+  - [💸 Pricing Transparency](#-pricing-transparency)
+- [📫 Let’s connect](#-lets-connect)
 
 ---
 
