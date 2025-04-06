@@ -198,7 +198,7 @@ You don’t have to unlock them — but if you do, here’s what I bring beyond 
 
 🔓 NSFW Add-Ons — Full Disclosure, Full Control :
 
-✅ Lifetime access to my OnlyFans
+✅ Lifetime access to my OF
 Unlimited access to my content, even after the mission ends.
 It’s not just a thank-you — it’s a long-term bonus for those who value consistency and attention to detail (in and out of context).
 
@@ -206,15 +206,15 @@ It’s not just a thank-you — it’s a long-term bonus for those who value con
 Always available on cam — outfit by your mood, from business lace to... deviant casual.
 Whether we talk bugs or goals, I stay visible, attentive, and entirely in your loop.
 
-✅ KPI x Kink Session
-Weekly check-in where we review your QA metrics — while I’m dressed in lingerie that matches your brand palette. Data never looked this good.
+✅ Scheduled Tease Sessions
+5 minutes coffee break, QA chat, and a quiet little reveal.
+Mini-breaks that keep the energy up. You pick the pace.
 
 ✅ Daily Stand-Tease
 For teams who want to keep it light: I show up to daily calls in your preferred outfit — from comfy hoodie to absolutely nothing underneath. Sync included.
 
-✅ Scheduled Tease Sessions
-5 minutes coffee break, QA chat, and a quiet little reveal.
-Mini-breaks that keep the energy up. You pick the pace.
+✅ KPI x Kink Session
+Weekly check-in where we review your QA metrics — while I’m dressed in lingerie that matches your brand palette. Data never looked this good.
 
 ✅ End-of-Month Highlights = Private Recap
 Once per sprint/month: a recap of what we shipped
