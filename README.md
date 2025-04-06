@@ -1,7 +1,10 @@
-# 🔥🧪 Duality by Design
+# 💻🍑 Full Coverage & Full Exposure — One Repository, Two Layers
 
 **Welcome.**  
-This isn’t your average portfolio — it’s a curated intersection of clean testing pipelines and unapologetic self-expression.
+This isn’t just a repo — it’s a fully exposed stack of QA precision and soft disruption.  
+I test deep. I log everything. And I never release prematurely.  
+Every scenario gets handled. Every layer touched.  
+And if you find a bug? Congratulations — you’ve found an invitation.
 
 **By day:** QA engineer — catching bugs, automating flows, building scalable quality strategies.  
 **By night:** content creator — bold, soft, sometimes spicy, always intentional.
@@ -29,8 +32,8 @@ This isn’t your average portfolio — it’s a curated intersection of clean t
 
 ## 🔥 My NSFW Side
 
-I create sensual content — part aesthetic, part performance, part play.  
-Not vulgar. Just confident. Sometimes explicit. Always mine.
+I create NSFW content that’s part ritual, part release, part beautifully out of scope.  
+Structured, styled, and just risky enough to cause unexpected behavior.
 
 👀 Want to peek into that world?
 
@@ -48,14 +51,26 @@ Not vulgar. Just confident. Sometimes explicit. Always mine.
 
 ### ▸ **Can I hire you just for QA work?**  
 Absolutely.  
-My QA missions are 100% clean, focused, and structured.  
-I've worked with startups, public agencies, and highly regulated sectors.
+Yes. And I’ll stay fully clothed — unless the payload requires deeper authentication.
 
 ---
 
-### ▸ **Do you bring your NSFW side into your QA contracts?**  
-Not unless you count storytelling, edge, and curiosity. 😉  
-What you get in a QA project: coverage, clarity, collaboration.
+### ▸ **How do you balance the two sides?**  
+Same way I balance async flows:  
+By knowing when to wait, when to retry, and when to go all in.
+
+---
+
+### ▸ **What if my team isn’t comfortable with this?**  
+I’m not here to shock — I’m here to deliver.  
+But if a touch of spice scares them off, maybe their code isn’t ready for deployment anyway.
+
+---
+
+### ▸ **Do I bring my NSFW side into QA?**  
+Only in metaphor.  
+Because honestly, well-structured logic and soft lighting aren't so far apart.  
+My reports are clean — my thoughts? Often flagged 🔞
 
 ---
 
@@ -87,9 +102,9 @@ Those who value:
 
 ---
 
-> My work is clean.  
-> My mind is structured.  
-> My content? Depends what you’re ready to see.
+> My code is clean.  
+> My logs are revealing.  
+> And my backend? Built for deep, recursive exploration.
 
 ![QA Love](https://img.shields.io/badge/Flaky%20Tests-not%20welcome-red)
 ![Dual Mode](https://img.shields.io/badge/NSFW%20energy-Classy%20&%20calibrated-ff69b4)
