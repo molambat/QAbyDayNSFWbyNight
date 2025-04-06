@@ -270,6 +270,32 @@ All of this is included without changing the rate.
 Why? Because my pricing reflects value, not constraint.
 You’re paying for time, skill, and presence — how you use it is your call.
 
+##🎁 Prenium Additional NSFW Options (Fully Optional & Consensual)
+These premium extras are reserved for clients seeking the deepest level of collaboration and engagement. 
+All options below are fully customizable and available without additional charges. 
+Your comfort and preferences define every boundary and experience : 
+
+✅ IRL Meet-ups (Geographically Close Clients Only)
+For clients located nearby, I’m open to discreet, private, and fully consensual in-person encounters.
+Perfect for project celebrations, intimate discussions, or exploring ideas beyond the virtual space.
+
+✅ Nickname & Language Control (Express Yourself Freely)
+Feel free to choose any nickname or express yourself without restrictions.
+You may speak casually, explicitly, or even provocatively—I’ll adapt completely to your communication style and preferences.
+
+✅ Fully Customizable Experiences — No Limits
+Every NSFW option can be tailored and expanded exactly to your desires.
+No preset limits; if you imagine it, let’s discuss it. Your experience, your rules.
+
+✅ Clear Separation of Professional and NSFW (On-Demand & Seamless)
+I can effortlessly toggle between professional and NSFW modes at your request.
+Rest assured, I will never initiate or mix contexts without your explicit invitation.
+
+✅ Fully Submissive & Responsive (Your Lead, My Follow)
+I take no initiative without your explicit guidance. Entirely receptive and responsive,
+I thrive when you clearly communicate your desires—I follow your directions without hesitation or question.
+
+> This is your space to set the rules—I’ll handle the rest.
 ---
 
 ## 📫 Let’s connect
