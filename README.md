@@ -129,25 +129,16 @@ I handle edge cases like I handle desire — slowly, repeatedly, until they’re
 
 ---
 
-### ▸ **How do you balance the two sides?**  
-
-Same way I balance async flows:  
-By knowing when to wait, when to retry, and when to go all in.
-
----
-
 ### ▸ **What if my team isn’t comfortable with this?**  
 
 No problem — my pipelines adapt better than some managers.  
-I can toggle safe mode, but I won’t silence my changelog.
+I can toggle safe mode.
 
 ---
 
 ### ▸ **Do I bring my NSFW side into QA?**  
 
-Only in metaphor.  
-Because honestly, well-structured logic and soft lighting aren't so far apart.  
-My reports are clean — my thoughts? Often flagged 🔞
+NOPE, unless you want it !
 
 ---
 
@@ -172,15 +163,6 @@ Those who value:
 - Directness over politics  
 - Edge over conformity  
 - Tech + Human → not Tech vs Human
-
----
-
-### ▸ **Can I hire you for both QA and NSFW content?**
-
-Absolutely.  
-Some collaborations deserve both reliability and... a little extra stimulation.  
-You’ll get full testing support *and* custom NSFW content — each crafted with precision, care, and a touch of charm.  
-Want testing by day and teasing by night? I can branch both flows.
 
 ---
 
