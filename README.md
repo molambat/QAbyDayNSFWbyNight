@@ -144,10 +144,6 @@ I create NSFW content that’s part ritual, part release, part beautifully out o
 Structured, styled, and just risky enough to cause unexpected behavior.
 
 👀 Want to peek into that world?
-
-→ [OnlyFans](https://onlyfans.com/french_mtf)
-→ [X (Twitter)](https://twitter.com/French__MTF) 
-→ [Instagram](https://instagram.com/french_mtf)  
 → [Linkr.bio - all my links](https://linkr.bio/m.lambat)
 
 > Everything’s testable — even my back-end, which returns only rich content. 🍑
@@ -159,7 +155,7 @@ Structured, styled, and just risky enough to cause unexpected behavior.
 
 ### ▸ **Can I hire you just for QA work?**  
 
-Yes. Fully professional, even when I’m fully exposed elsewhere.  
+Yes. Fully professional !
 You’ll get perfect logs, clear reports, and no surprises — unless requested.
 
 ---
@@ -167,8 +163,6 @@ You’ll get perfect logs, clear reports, and no surprises — unless requested.
 ### ▸ Aren’t you afraid this will scare off clients?
 
 Only the ones afraid of real transparency.  
-I’m not split — I’m **stacked**.  
-And those who get it? They *really* get it.
 
 ---
 
@@ -181,8 +175,7 @@ I handle edge cases like I handle desire — slowly, repeatedly, until they’re
 
 ### ▸ **What if my team isn’t comfortable with this?**  
 
-No problem — my pipelines adapt better than some managers.  
-I can toggle safe mode.
+No problem. I can toggle safe mode.
 
 ---
 
@@ -223,50 +216,38 @@ But let’s be clear: tech first ! spice optional.
 
 ---
 ### 🎁 Custom QA/NSFW Collabs (OPTIONAL & Fully Consensual)
-The NSFW layer is a free, optional bonus — it’s never invoiced, and never part of the contract.
-But for those who choose to unlock it, something shifts:
-Boundaries dissolve, conversations deepen, and collaboration becomes radically open.
-No secrets. No walls. Just shared flow — honest, human, and fully aligned.
-Because when there’s trust?
-Work feels lighter. Feedback flows smoother. And suddenly, even QA becomes intimate.
+While my QA work stands fully on its own precise, complete, and professional.
+Some clients enjoy exploring an additional, more personal layer of collaboration.
+This optional NSFW side is never invoiced, never part of formal contracts, and only unlocked by mutual consent. 
+Think of it as a creative bonus: a deeper connection, a smoother flow, and a space where trust encourages total clarity — without pressure, without pretense
 
-🔓 NSFW Add-Ons — Full Disclosure, Fully Customizable :
+🔓 Add-Ons Available — Full Disclosure, Fully Customizable :
 
-✅ Lifetime OF Access
+✅ Lifetime Access to Private Content
 Enjoy unlimited content forever. Your bonus for appreciating quality both professionally and privately.
 
-✅ Camera-Ready for calls
-Always available on cam. You pick my outfit: professional, casual, or provocatively minimal.
+✅ Camera-Ready Check-ins
+Always available on cam for syncs or 1:1s — with outfit/theme decided by you. Casual, creative, or professionally playful.
 
-✅ Daily Stand-Tease
-Daily meetings dressed (or undressed) exactly how you desire—professional top, playful below, or nothing at all.
+✅ Mood-Based Standups
+Daily syncs with a twist: I adapt my style to match your tone — whether that's buttoned-up or a little more relaxed.
 
-✅ KPI x Kink Session
-Weekly QA check-ins matched with lingerie themed around your brand’s colors. Turning metrics into motivation.
+✅ Branded QA Recaps
+End-of-sprint visual summaries with a custom aesthetic — inspired by your brand palette, mission energy, or mood board.
 
-✅ Private Monthly Recaps
-Celebrate milestones with a personalized visual recap—your choice of attire or absence thereof.
-
-✅ Nightly Comfort Calls
-Intimate nightly conversations or relaxing cam sessions designed to soothe and unwind after intense days.
-
-✅ Complete Submission (Customizable Humiliation Optional)
-Prefer a fully submissive dynamic? Set your tone, assign nicknames, speak freely—I obey your explicit direction.
+✅ Personalized Experience
+From naming conventions to tone of communication, everything is adaptable. 
+Your comfort and preferences shape the experience.
 
 ### 💸 Pricing Transparency
-No extra charge—you're paying for my expertise, time, and willingness. 
-How you enjoy them is entirely your choice.
+This layer is fully complimentary.
+You're paying for quality, time, and presence — not for extra packaging.
+And that’s exactly what you’ll get: clear value, no hidden terms.
 
-⚙️ Unlimited Personalization
-Each option can be adjusted to match your specific desires and comfort levels—no limits.
-
-⚙️ Clear Separation of Professional and NSFW (On-Demand & Seamless)
-I can effortlessly toggle between professional and NSFW modes at your request.
-Rest assured, I will never initiate or mix contexts without your explicit invitation.
-
-⚙️ Fully Submissive & Responsive (Your Lead, My Follow)
-I take no initiative without your explicit guidance. Entirely receptive and responsive,
-I thrive when you clearly communicate your desires—I follow your directions without hesitation or question.
+⚙️ Boundaries & Consent, Always
+  🔒 Optional & Private — Nothing begins without a conversation.
+  🔁 Easily Toggleable — We can switch from full-pro to full-fun (and back) at your request.
+  🌐 Safe & Professional — Always aligned with your comfort zone and expectations.
 
 > This is your space to set the rules—I’ll handle the rest.
 ---
