@@ -238,10 +238,6 @@ It’s not just a thank-you — it’s a long-term bonus for those who value con
 Five-minute coffee breaks paired with QA chats and discreet visual teasers.
 Quick, stimulating sessions to maintain energy and motivation. You set the pace.
 
-✅ Scheduled Tease Sessions
-5 minutes coffee break, QA chat, and a quiet little reveal.
-Mini-breaks that keep the energy up. You pick the pace.
-
 ✅ Daily Stand-Tease
 Keep your daily meetings enticing: I’ll join in the attire you choose—anything from your favorite comfy hoodie to completely casual beneath the camera line. 
 Or perhaps professional top, playful below—sync and smiles always included.
