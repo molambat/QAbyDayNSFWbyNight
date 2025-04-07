@@ -230,37 +230,33 @@ You don’t have to unlock them, but if you do, here’s what awaits beyond trad
 
 🔓 NSFW Add-Ons — Full Disclosure, Fully Customizable :
 
-✅ Lifetime access to my OF
-Unlimited access to my content, even after the mission ends.
-It’s not just a thank-you — it’s a long-term bonus for those who value consistency and attention to detail (in and out of context).
+✅ Lifetime OF Access
+Enjoy unlimited content forever. Your bonus for appreciating quality both professionally and privately.
 
 ✅ Camera-Ready for calls
-Five-minute coffee breaks paired with QA chats and discreet visual teasers.
-Quick, stimulating sessions to maintain energy and motivation. You set the pace.
+Always available on cam. You pick my outfit: professional, casual, or provocatively minimal.
 
 ✅ Daily Stand-Tease
-Keep your daily meetings enticing: I’ll join in the attire you choose—anything from your favorite comfy hoodie to completely casual beneath the camera line. 
-Or perhaps professional top, playful below—sync and smiles always included.
+Daily meetings dressed (or undressed) exactly how you desire—professional top, playful below, or nothing at all.
 
 ✅ KPI x Kink Session
-Weekly check-ins where we deep-dive into QA metrics, with me dressed in lingerie matching your brand's palette.
-Making data irresistible, one metric at a time.
+Weekly QA check-ins matched with lingerie themed around your brand’s colors. Turning metrics into motivation.
 
-✅ End-of-Month Highlights (Private Recap)
-A monthly review celebrating delivered milestones—personalized timestamps, and your preferred choice of attire or theme. 
-Celebrate wins visually and vividly.
+✅ Private Monthly Recaps
+Celebrate milestones with a personalized visual recap—your choice of attire or absence thereof.
 
 ✅ Nightly Comfort Calls
-Calming evening video or audio calls, offering gentle relaxation after challenging workdays—soft, reassuring, and comforting conversation as you wind down.
+Intimate nightly conversations or relaxing cam sessions designed to soothe and unwind after intense days.
+
+✅ Complete Submission (Customizable Humiliation Optional)
+Prefer a fully submissive dynamic? Set your tone, assign nicknames, speak freely—I obey your explicit direction.
 
 ### 💸 Pricing Transparency
-All of this is included without changing the rate.
-Why? Because my pricing reflects value, not constraint.
-You’re paying for time, skill, and presence — how you use it is your call.
+No extra charge—you're paying for my expertise, time, and willingness. 
+How you enjoy them is entirely your choice.
 
-⚙️ Fully Customizable Experiences — No Limits
-Every NSFW option can be tailored and expanded exactly to your desires.
-Your experience, your rules.
+⚙️ Unlimited Personalization
+Each option can be adjusted to match your specific desires and comfort levels—no limits.
 
 ⚙️ Clear Separation of Professional and NSFW (On-Demand & Seamless)
 I can effortlessly toggle between professional and NSFW modes at your request.
