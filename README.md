@@ -223,10 +223,12 @@ But let’s be clear: tech first ! spice optional.
 
 ---
 ### 🎁 Custom QA/NSFW Collabs (OPTIONAL & Fully Consensual)
-
-These extras are designed for clients who desire more than just excellent test coverage—and know exactly how to handle full-stack visibility. 
-All perks are post-agreement only, fully consensual, and come at no additional cost. 
-You don’t have to unlock them, but if you do, here’s what awaits beyond traditional QA:
+The NSFW layer is a free, optional bonus — it’s never invoiced, and never part of the contract.
+But for those who choose to unlock it, something shifts:
+Boundaries dissolve, conversations deepen, and collaboration becomes radically open.
+No secrets. No walls. Just shared flow — honest, human, and fully aligned.
+Because when there’s trust?
+Work feels lighter. Feedback flows smoother. And suddenly, even QA becomes intimate.
 
 🔓 NSFW Add-Ons — Full Disclosure, Fully Customizable :
 
