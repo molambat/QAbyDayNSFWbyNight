@@ -1,4 +1,4 @@
-# 💻🍑 Full Coverage & Full Exposure — One Repository, Two Layers
+# 💻 Full Coverage & Full Exposure — One Repository, Two Layers
 
 **Welcome.**  
 This isn’t just a repo — it’s a fully exposed stack of QA precision and soft disruption.  
