@@ -105,6 +105,7 @@ Ensuring smooth transition and knowledge transfer across teams or during handove
 Comfortable and proficient in fully remote, asynchronous work environments.
 Flexible availability for synchronous calls or cam-based meetings, tailored to team preferences and requirements.
 
+---
 🔐 Privacy & Confidentiality Assurance
 All interactions are conducted securely, discreetly, and privately.
 Sessions are never recorded or stored without explicit permission.
@@ -119,7 +120,7 @@ Privacy is guaranteed—no exceptions.
 🔹 I don’t just write test cases — I write test culture.
 
 📎 Explore my QA playground:  
-→ [TestingIsForeplay repo](https://github.com/molambat/TestingIsForeplay)
+→ [![My QA Playground - TestingIsForeplay](https://img.shields.io/badge/GitHub-TestingIsForeplay-blue)](https://github.com/molambat/TestingIsForeplay)
 
 💬 A few vibes from my QA world:
 > “I write tests that flirt with every failure path.”  
@@ -140,11 +141,15 @@ just say the word.
 --
 ## 🔥 My NSFW Side
 
+> **First and foremost, I'm QA: rigorous, experienced, and reliable.**  
+> The NSFW side? It's 100% optional — a creative extra for those who want it.  
+> If you’d rather keep it fully professional, that’s exactly what you’ll get.
+
 I create NSFW content that’s part ritual, part release, part beautifully out of scope.  
 Structured, styled, and just risky enough to cause unexpected behavior.
 
 👀 Want to peek into that world?
-→ [Linkr.bio - all my links](https://linkr.bio/m.lambat)
+→ [![My Universe](https://img.shields.io/badge/Linkr.bio-NSFW%20side-ff69b4)](https://linkr.bio/m.lambat)
 
 > Everything’s testable — even my back-end, which returns only rich content. 🍑
 > And if you input the right parameters... I might just expose more routes.
@@ -182,13 +187,6 @@ No problem. I can toggle safe mode.
 ### ▸ **Do I bring my NSFW side into QA?**  
 
 NOPE, unless you want it !
-
----
-
-### ▸ **Why mix QA and NSFW?**  
-
-Because being whole is more powerful than being hidden.  
-This repo is about visibility, not dilution.
 
 ---
 
