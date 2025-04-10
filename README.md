@@ -214,15 +214,14 @@ But let’s be clear: tech first ! spice optional.
 
 ---
 ### 🎁 Custom QA/NSFW Collabs (OPTIONAL & Fully Consensual)
-While my QA work stands fully on its own precise, complete, and professional.
-Some clients enjoy exploring an additional, more personal layer of collaboration.
-This optional NSFW side is never invoiced, never part of formal contracts, and only unlocked by mutual consent. 
-Think of it as a creative bonus: a deeper connection, a smoother flow, and a space where trust encourages total clarity — without pressure, without pretense
+My QA services are complete and professional on their own, but some clients enjoy a more intimate dimension to our collaboration. 
+This NSFW aspect is **never** part of the formal contract or billing—it's entirely optional and only happens with mutual agreement. 
+Think of it as a bonus that can add a personal or provocative touch to our work together.
 
 🔓 Add-Ons Available — Full Disclosure, Fully Customizable :
 
 ✅ Lifetime Access to Private Content
-Enjoy unlimited content forever. Your bonus for appreciating quality both professionally and privately.
+You'll receive permanent access to any explicit media I produce. It’s my way of saying thank you for trusting me both as a QA professional and a creative partner.
 
 ✅ Camera-Ready Check-ins
 Always available on cam for syncs or 1:1s — with outfit/theme decided by you. Casual, creative, or professionally playful.
