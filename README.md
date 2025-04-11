@@ -218,24 +218,6 @@ My QA services are complete and professional on their own, but some clients enjo
 This NSFW aspect is **never** part of the formal contract or billing—it's entirely optional and only happens with mutual agreement. 
 Think of it as a bonus that can add a personal or provocative touch to our work together.
 
-🔓 Add-Ons Available — Full Disclosure, Fully Customizable :
-
-✅ Lifetime Access to Private Content
-You'll receive permanent access to any explicit media I produce. It’s my way of saying thank you for trusting me both as a QA professional and a creative partner.
-
-✅ Camera-Ready Check-ins
-Always available on cam for syncs or 1:1s — with outfit/theme decided by you. Casual, creative, or professionally playful.
-
-✅ Mood-Based Standups
-Daily syncs with a twist: I adapt my style to match your tone — whether that's buttoned-up or a little more relaxed.
-
-✅ Branded QA Recaps
-End-of-sprint visual summaries with a custom aesthetic — inspired by your brand palette, mission energy, or mood board.
-
-✅ Personalized Experience
-From naming conventions to tone of communication, everything is adaptable. 
-Your comfort and preferences shape the experience.
-
 ### 💸 Pricing Transparency
 This layer is fully complimentary.
 You're paying for quality, time, and presence — not for extra packaging.
