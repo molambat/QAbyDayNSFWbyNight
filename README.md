@@ -223,10 +223,10 @@ This layer is fully complimentary.
 You're paying for quality, time, and presence — not for extra packaging.
 And that’s exactly what you’ll get: clear value, no hidden terms.
 
-⚙️ Boundaries & Consent, Always
-  🔒 Optional & Private — Nothing begins without a conversation.
-  🔁 Easily Toggleable — We can switch from full-pro to full-fun (and back) at your request.
-  🌐 Safe & Professional — Always aligned with your comfort zone and expectations.
+- ⚙️ Boundaries & Consent, Always
+- 🔒 Optional & Private — Nothing begins without a conversation.
+- 🔁 Easily Toggleable — We can switch from full-pro to full-fun (and back) at your request.
+- 🌐 Safe & Professional — Always aligned with your comfort zone and expectations.
 
 > This is your space to set the rules—I’ll handle the rest.
 ---
