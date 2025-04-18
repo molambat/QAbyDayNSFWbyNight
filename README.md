@@ -60,11 +60,11 @@ The NSFW dimension is completely optional, always consensual, and creatively tai
 
 **Available Services:**
 
-- **🔥 Lifetime Free OnlyFans Access**  
-  Lifetime access to intimate, exclusive content designed to make you crave more.
+- **🔥 Lifetime OnlyFans Pass**  
+  Unlimited, explicit content—no limits, no filters, all pleasure.
 
 - **📹 Personalized Video/Photo Content**  
-  Customized cam calls—dress me up or down, your fantasy, your rules.
+  Tell me what to wear—or not wear—and I'll show you exactly what you've been craving.
 
 - **🎥 Themed Cam Calls**  
   Personalized content crafted explicitly for your eyes only—guaranteed to leave you breathless.
