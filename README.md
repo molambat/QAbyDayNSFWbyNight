@@ -111,7 +111,7 @@ NSFW services are complimentary bonuses. You're only paying for professional qua
 
 ---
 
-> **My code is clean. My logs revealing. My backend? Deep, recursive, and built for exploration.**
+> **Size doesn’t matter when it’s locked away. What matters is the plug—deep, pulsing, and 100% API-ready**
 
 ![Chastity Cage Locked](https://img.shields.io/badge/%F0%9F%94%90-Chastity%20Cage%20Locked-blueviolet)
 ![Plugged & Ready](https://img.shields.io/badge/%F0%9F%8D%91-Plugged%20%26%20Ready-ff69b4)
