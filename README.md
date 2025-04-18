@@ -118,6 +118,3 @@ NSFW services are complimentary bonuses. You're only paying for professional qua
 
 ![Chastity Cage Locked](https://img.shields.io/badge/%F0%9F%94%90-Chastity%20Cage%20Locked-blueviolet)
 ![Plugged & Ready](https://img.shields.io/badge/%F0%9F%8D%91-Plugged%20%26%20Ready-ff69b4)
-![Open for Play](https://img.shields.io/badge/%F0%9F%94%A5-Open%20for%20Play-red)
-
-
