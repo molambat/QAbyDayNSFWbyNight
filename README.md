@@ -107,7 +107,7 @@ NSFW services are complimentary bonuses. You're only paying for professional qua
 ---
 
 ## 📫 Let's Connect
-- **Follow the breadcrumbs to my backend** [Linkr.bio](https://linkr.bio/m.lambat)
+- **Follow the breadcrumbs to my backend** [All My Links – QA + Extras](https://linkr.bio/m.lambat)
 
 ---
 
