@@ -69,8 +69,7 @@ The NSFW dimension is completely optional, always consensual, and creatively tai
 - **🎥 Themed Cam Calls**  
   Professionally conducted video calls, attire customized to your request and mood.
 
-- **💌 Private NSFW Chat Sessions** *(Optional Addition)*  
-  Personalized chat interactions, safely exploring desires and creativity.
+- ** Ask for more**
 
 ---
 
