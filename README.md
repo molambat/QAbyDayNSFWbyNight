@@ -116,8 +116,6 @@ NSFW services are complimentary bonuses. You're only paying for professional qua
 
 > **My code is clean. My logs revealing. My backend? Deep, recursive, and built for exploration.**
 
-![QA Love](https://img.shields.io/badge/Flaky%20Tests-not%20welcome-red)  
-![Dual Mode](https://img.shields.io/badge/NSFW%20energy-Classy%20&%20calibrated-ff69b4)
 ![Chastity Cage Locked](https://img.shields.io/badge/%F0%9F%94%90-Chastity%20Cage%20Locked-blueviolet)
 ![Plugged & Ready](https://img.shields.io/badge/%F0%9F%8D%91-Plugged%20%26%20Ready-ff69b4)
 ![Open for Play](https://img.shields.io/badge/%F0%9F%94%A5-Open%20for%20Play-red)
