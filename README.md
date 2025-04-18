@@ -23,6 +23,7 @@ If you find a bug? Congratulations—you've found an invitation.
 ## 🛠️ Professional QA Services
 
 I offer end-to-end QA with clarity, precision, and effectiveness.
+- **Explore my QA Work:** [TestingIsForeplay (GitHub)](https://github.com/molambat/TestingIsForeplay)
 
 ### 🧪 Manual & Functional Testing
 - **Test Case Design:** Structured, detailed, reproducible
@@ -106,11 +107,7 @@ NSFW services are complimentary bonuses. You're only paying for professional qua
 ---
 
 ## 📫 Let's Connect
-
-- **Professional QA Opportunities:** [LinkedIn](https://www.linkedin.com/in/mohammad-lambat/)
-- **Freelance QA Offers:** [Malt](https://www.malt.fr/profile/mohammadlambat)
-- **Explore my QA Work:** [TestingIsForeplay (GitHub)](https://github.com/molambat/TestingIsForeplay)
-- **Discover NSFW Content:** [Linkr.bio](https://linkr.bio/m.lambat)
+- **Follow the breadcrumbs to my backend** [Linkr.bio](https://linkr.bio/m.lambat)
 
 ---
 
